@@ -15,7 +15,7 @@
   
 </div><br/>
 
-Apaixonado por tecnologia, Marketing Digital e por criar coisas novas a cada dia.
+Apaixonado por Tecnologia, Marketing Digital e por criar coisas novas a cada dia.
 
 
 
